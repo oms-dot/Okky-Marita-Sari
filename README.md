@@ -1,4 +1,3 @@
-# Okky-Marita-Sari
 
 # Hi, I'm Okky Marita Sari 👋
 
